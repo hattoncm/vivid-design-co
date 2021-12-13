@@ -1,1 +1,1 @@
-# vivid-design-co
+# Vivid Design Co
